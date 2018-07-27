@@ -5,3 +5,4 @@ adflsjdf
 რამე 
 rame rame
 axali sul 
+axali komentarit
